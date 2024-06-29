@@ -1,1 +1,0 @@
-# Lok-Sabha-Election-Analysis
